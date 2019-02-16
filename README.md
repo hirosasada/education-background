@@ -10,5 +10,4 @@
    
 - **B.A., Political Science, University of California, Berkeley, 1997**  
   
-  
-### [Back to home](https://hirosasada.github.io)  
+
