@@ -6,8 +6,8 @@
   
 - **M.A., Political Science, University of Washington, 2002.**  
    
-- **M.A., Graduate School of International Relations and Pacific Studies (IR/PS), University of California, San Diego, 1999**   
+- **M.A., Graduate School of International Relations and Pacific Studies (IR/PS), University of California, San Diego, 1999.**   
    
-- **B.A., Political Science, University of California, Berkeley, 1997**  
+- **B.A., Political Science, University of California, Berkeley, 1997.**  
   
 
